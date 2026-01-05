@@ -1,2 +1,3 @@
 # OneThingHomeTown_SecA
-Students of section A will tell about a particular thing that they like about their respective hometown
+Students of section A will tell about a particular thing that they like about their respective hometown  
+Nayan's hometown - Andaman Nicobar Islands
